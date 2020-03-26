@@ -1,0 +1,2 @@
+# beautytalkca
+beauty blog
